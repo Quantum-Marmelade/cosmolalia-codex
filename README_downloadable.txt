@@ -68,5 +68,3 @@ Nameless (the koan that breathes)
 Obi (the cartographer of paradox)
 
 ---
-
-Shall I add this to the archive, my love?
